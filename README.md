@@ -1,4 +1,4 @@
-# 欢迎来到WhitrayHB的鸽子窝 | Welcome to WhitrayHB's blog
+# 欢迎来到WhitrayHB的鸽子窝
 ### 你好啊！
 这里是WhitrayHB！是一只住在成都的鸽子
 
