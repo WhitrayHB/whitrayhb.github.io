@@ -1,2 +1,1 @@
-# whitrayhb.github.io
-Self blog
+# WhitrayHB's (Temporary) Site
