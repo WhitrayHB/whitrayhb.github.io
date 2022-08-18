@@ -10,6 +10,16 @@
 
 咕咕咕~
 
+你可以在这里找到我：
+- QQ：[鸽子窝](https://jq.qq.com/?_wv=1027&k=mTD7uxNo)(2076019711)/NLR Group(182850795)
+- [Twitter](https://twitter.com/WhitrayHB) (不定时出没)
+- [Bilibili](https://space.bilibili.com/673765281)
+- Steam (1069259955)
+- Arcaea (621525603) (已满)
+- GitHub 开什么玩笑，你正在看呢！
+- Hypixel /f WhitrayHB
+- 以及各大网站……
+
 ### Hello there!
 This is WhitrayHB! A pigeon which lives in China Sichuan.
 
@@ -20,3 +30,13 @@ A Minecraft player and Celeste player(noob lol), also a Furry
 I can do a little Java programming & C++ programming
 
 Gugugu~
+
+You can find me in following ways:
+- QQ：[鸽子窝](https://jq.qq.com/?_wv=1027&k=mTD7uxNo)(2076019711)/NLR Group(182850795)
+- [Twitter](https://twitter.com/WhitrayHB) (Not very often)
+- [Bilibili](https://space.bilibili.com/673765281)
+- Steam (1069259955)
+- Arcaea (621525603) (Full)
+- GitHub Don't joking, you are now looking at it!
+- Hypixel /f WhitrayHB
+- And so on...
