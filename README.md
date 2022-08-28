@@ -18,7 +18,7 @@
 - [NLR DevTeam](https://nlrdev.top)
 - Steam (1069259955) @WhitrayHB
 - Arcaea (621525603) (已满)
-- [GitHub](github.com/WhitrayHB)
+- [GitHub](https://github.com/WhitrayHB)
 - Hypixel /f WhitrayHB
 - 以及各大网站……
 
@@ -42,7 +42,7 @@ You can find me by following ways:
 - [NLR DevTeam](https://nlrdev.top)
 - Steam (1069259955) @WhitrayHB
 - Arcaea (621525603) (Full)
-- [GitHub](github.com/WhitrayHB)
+- [GitHub](https://github.com/WhitrayHB)
 - Hypixel /f WhitrayHB
 - And so on...
 
