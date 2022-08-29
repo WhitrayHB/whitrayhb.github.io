@@ -7,7 +7,7 @@
 
 欢迎赠图（[这是设定](https://github.com/WhitrayHB/WhitrayHB/blob/main/WhitrayHB/WhitrayHB.png)）和投喂~ 也可以让我帮帮忙，只要我能帮得上的话()
 
-在攒钱买屏幕（这边只有一块1366*768）、约稿、买各种材料（计划DIY风扇和U盘和自己做装啥的）……所以如果能[投喂](https://github.com/WhitrayHB/WhitrayHB/edit/main/README.md#%E6%8A%95%E5%96%82sponsor-me)一点鸽粮的话我会肥肠高兴的！
+在攒钱买屏幕（这边只有一块1366*768）、约稿、买各种材料（计划DIY风扇和U盘和自己做装啥的）……所以如果能[投喂](https://github.com/WhitrayHB#%E6%8A%95%E5%96%82sponsor-me)一点鸽粮的话我会肥肠高兴的！
 
 咕咕咕~
 
@@ -31,7 +31,7 @@ I'm a Minecraft player and Celeste player(noob lol), also a Furry, can do a litt
 
 Welcome for drawing me a picture ([Here's my fursona!](https://github.com/WhitrayHB/WhitrayHB/blob/main/WhitrayHB/WhitrayHB.png)) or feed me some pigeon food. You can also ask me for some help as long as I can help.
 
-I'm saving money for buying new monitor, buying some materials(planning to make fursuit, fans and U-disks myself), get myself more pics and so on...So if you could [sponsor](https://github.com/WhitrayHB/WhitrayHB/edit/main/README.md#%E6%8A%95%E5%96%82sponsor-me) me some money I'll be happy a whole day!
+I'm saving money for buying new monitor, buying some materials(planning to make fursuit, fans and U-disks myself), get myself more pics and so on...So if you could [sponsor](https://github.com/WhitrayHB#%E6%8A%95%E5%96%82sponsor-me) me some money I'll be happy a whole day!
 
 Gugugu~
 
